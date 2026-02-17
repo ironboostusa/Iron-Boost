@@ -5,7 +5,7 @@ Official Website :- https://getironboost.com/
 
 https://ironboost.com.au/
 
-ironboost.ca
+http://ironboost.ca/
 
 https://ironboost.co.uk/ 		
 
